@@ -1,3 +1,4 @@
+![](https://file.garden/Z8CtnITDmAd0rIH7/Untitled1964_20251108232826.png)
 <p align="center">
    ͏͏˘⠀⠀⠀⠀🍃  ⠀           ⠀⠀⠀𝓜𓈒
 
@@ -7,8 +8,10 @@
   
    <p align="center">
                            　 ͏͏͏or⠀⠀⠀⠀𝓳ulian.⠀ ͏͏͏ ͏͏͏eighteen,⠀ ͏͏͏ ͏͏͏noprns.
+   </p> 
       
-![](https://file.garden/Z8CtnITDmAd0rIH7/Untitled1964_20251108232826.png)
+
+
 
 <img src="https://file.garden/Z8CtnITDmAd0rIH7/Untitled1972_20251108233640.png" align="left" width="350px" height="450px"/>
 
