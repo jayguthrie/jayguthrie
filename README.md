@@ -27,3 +27,6 @@ kevin ford⠀ ͏͏͏ josh foley⠀ ͏͏͏ julian keller⠀ ͏͏͏ angel</br>
 victor mancha⠀ ͏͏͏ cessily kincaid⠀ ͏͏͏etc 
 
 shout out to queertin quire⠀ ͏͏͏⠀ ͏͏͏[YOU STINK!]()
+⠀⠀ ͏͏͏
+
+![](https://file.garden/Z8CtnITDmAd0rIH7/Untitled1964_20251109002422.png)
