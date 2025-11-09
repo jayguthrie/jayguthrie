@@ -16,7 +16,10 @@
 
 
 
-𝓘⠀ ͏͏͏♡⠀ ͏͏͏[marvel⠀ ͏͏͏comics](https://rentry.co/ageofrevelation)⠀ ͏͏͏&⠀ ͏͏͏[superheroes](https://rentry.co/douglock)</br>
+𝓘⠀ ͏͏͏♡⠀ ͏͏͏[marvel⠀ ͏͏͏comics](https://rentry.co/ageofrevelation)⠀ ͏͏͏&⠀ ͏͏͏[superheroes](https://rentry.co/douglock)
+
 academy x⠀ ͏͏ new mutants⠀ ͏͏͏ doug ramsey</br>
 kevin ford⠀ ͏͏͏ josh foley⠀ ͏͏͏ julian keller⠀ ͏͏͏ angel</br>
-victor mancha⠀ ͏͏͏ cessily kincaid⠀ ͏͏͏etc⠀ ͏͏͏^-^
+victor mancha⠀ ͏͏͏ cessily kincaid⠀ ͏͏͏jay guthrie
+
+shout out to this queer⠀ ͏͏͏  @quentinquire⠀ ͏͏͏ 
