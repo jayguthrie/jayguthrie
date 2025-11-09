@@ -22,4 +22,4 @@ academy x⠀ ͏͏ new mutants⠀ ͏͏͏ doug ramsey</br>
 kevin ford⠀ ͏͏͏ josh foley⠀ ͏͏͏ julian keller⠀ ͏͏͏ angel</br>
 victor mancha⠀ ͏͏͏ cessily kincaid⠀ ͏͏͏etc 
 
-shout out to this queer⠀ ͏͏͏  @quentinquire⠀ ͏͏͏ 
+shout out to queertin quire⠀ ͏͏͏⠀ ͏͏͏[YOU STINK!]()
