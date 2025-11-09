@@ -7,7 +7,8 @@
   
    <p align="center">
                            　 ͏͏͏or⠀⠀⠀⠀𝓳ulian.⠀ ͏͏͏ ͏͏͏eighteen,⠀ ͏͏͏ ͏͏͏noprns.
-<p align="center"> 
+      
+![](https://file.garden/Z8CtnITDmAd0rIH7/Untitled1964_20251108232826.png)
 <img src="https://file.garden/Z8CtnITDmAd0rIH7/IMG_9439.png" align="left" width="200px" height="400px"/>
 
 some text floating around the image</br>
