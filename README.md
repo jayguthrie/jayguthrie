@@ -1,5 +1,5 @@
 ## Hi there 👋
-![](https://file.garden/Z8CtnITDmAd0rIH7/Untitled1972_20251108182001.png)
+![](https://file.garden/Z8CtnITDmAd0rIH7/Untitled1972_20251108182001.png = 250x)
 <!--
 **jayguthrie/jayguthrie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
