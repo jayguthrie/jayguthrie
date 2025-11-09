@@ -1,7 +1,7 @@
 <p align="center">
                               ⊹  ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏⠀⠀𝓳ulian　 ͏͏͏ ͏͏͏  ⁺　 　 .
 <p align="center">
-  <img src="https://file.garden/Z8CtnITDmAd0rIH7/Untitled1972_20251108182001.png" width="400" height="600" />
+  <img src="https://file.garden/Z8CtnITDmAd0rIH7/Untitled1967_20251108185838.png" width="200" height="400" />
 </p>
 
 <p align="center">
