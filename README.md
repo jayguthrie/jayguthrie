@@ -12,9 +12,11 @@
 
 <img src="https://file.garden/Z8CtnITDmAd0rIH7/Untitled1972_20251108233640.png" align="left" width="300px" height="400px"/>
 
-i⠀ ͏͏͏LOVE⠀ ͏͏͏[marvel⠀ ͏͏͏comics](https://rentry.co/ageofrevelation)⠀ ͏͏͏&⠀ ͏͏͏[superheroes](https://rentry.co/douglock)</br>
-academy⠀x⠀ ͏͏new⠀mutants⠀ ͏͏͏doug⠀ramsey</br>
-kevin⠀ford⠀ ͏͏͏josh⠀foley⠀ ͏͏͏julian⠀keller⠀ ͏͏͏angel</br>
-victor⠀mancha⠀ ͏͏͏cessily⠀kinaid⠀ ͏͏͏and⠀ ͏͏͏more!
 
 
+
+
+i⠀ ͏͏͏♡⠀ ͏͏͏[marvel⠀ ͏͏͏comics](https://rentry.co/ageofrevelation)⠀ ͏͏͏&⠀ ͏͏͏[superheroes](https://rentry.co/douglock)</br>
+academy x⠀ ͏͏ new mutants⠀ ͏͏͏ doug ramsey</br>
+kevin ford⠀ ͏͏͏ josh foley⠀ ͏͏͏ julian keller⠀ ͏͏͏ angel</br>
+victor mancha⠀ ͏͏͏ cessily kincaid⠀ ͏͏͏etc⠀ ͏͏͏^-^
