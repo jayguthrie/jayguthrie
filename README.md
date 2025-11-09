@@ -8,9 +8,9 @@
    <p align="center">
                            　 ͏͏͏or⠀⠀⠀⠀𝓳ulian.⠀ ͏͏͏ ͏͏͏eighteen,⠀ ͏͏͏ ͏͏͏noprns.
 <p align="center"> 
-  <img src="https://file.garden/Z8CtnITDmAd0rIH7/IMG_9439.png" width="200" height="400" />  
-</p>
+<img src="https://file.garden/Z8CtnITDmAd0rIH7/IMG_9439.png" align="left" width="200px" height="400px"/>
 
-  <p align="right">
+some text floating around the image</br>
+lalala
 
 
