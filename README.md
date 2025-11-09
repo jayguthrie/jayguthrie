@@ -9,8 +9,10 @@
    <p align="center">
                            　 ͏͏͏or⠀⠀⠀⠀𝓳ulian.⠀ ͏͏͏ ͏͏͏eighteen,⠀ ͏͏͏ ͏͏͏noprns.
    </p> 
-      
 
+<p align="center">
+   <img src="https://file.garden/Z8CtnITDmAd0rIH7/Untitled1898_20251109002600.png"  />
+</p>
 
 
 <img src="https://file.garden/Z8CtnITDmAd0rIH7/Untitled1972_20251108233640.png" align="left" width="350px" height="450px"/>
@@ -26,7 +28,7 @@ academy x⠀ ͏͏ new mutants⠀ ͏͏͏ doug ramsey</br>
 kevin ford⠀ ͏͏͏ josh foley⠀ ͏͏͏ julian keller⠀ ͏͏͏ angel</br>
 victor mancha⠀ ͏͏͏ cessily kincaid⠀ ͏͏͏etc 
 
-shout out to queertin quire⠀ ͏͏͏⠀ ͏͏͏[YOU STINK!]()
-⠀⠀ ͏͏͏
-
+shout out to queertin quire⠀ ͏͏͏⠀ ͏͏͏[YOU STINK!]()</br>
+⠀⠀ 
+⠀ ͏͏͏ 
 ![](https://file.garden/Z8CtnITDmAd0rIH7/Untitled1964_20251109002422.png)
